@@ -1,4 +1,4 @@
-
+updated steal a brainrot Scripts offers the most advanced steal a brainrot Script, with invisibility and unlimited stamina. Perfect for dominating
 
 
 
